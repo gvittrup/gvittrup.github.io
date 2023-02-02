@@ -1,4 +1,4 @@
-# [Github](https://github.com/gvittrup)
+# [LinkedIn](https://www.linkedin.com/in/gvittrup/)
 # [Portfolio](https://gunnarvittrup.myportfolio.com)
 # Thanks for checking out my page!
 
