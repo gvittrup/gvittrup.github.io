@@ -1,3 +1,6 @@
+# [Github](https://github.com/gvittrup)
+# [Portfolio](https://gunnarvittrup.myportfolio.com)
+# Thanks for checking out my page!
 
 * Gunnar Vittrup
 * Boise State University
